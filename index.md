@@ -1,4 +1,4 @@
-## SMH Lower Your Gaze Brozza
+## Lower Your Gaze Brozza
 
 ![Surah An-Nur Verse 30](https://user-images.githubusercontent.com/1833154/131265725-148de753-9cf0-4c63-ae68-fd2f0321f7ef.png)
 
